@@ -6,5 +6,5 @@ jadi nikmati yaaa!!!
 
 Catatan: Jangan lupa Sholat Brayyyy!!!!!!
 
-#dah itu ada 
+#dah itu aja
 #adyfasCoding
